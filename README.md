@@ -1,0 +1,1 @@
+Mug caks are iterally cakes made in a mug. They have gained popularity since the previous couple of years. Mug cakes are exteremely easy and quick to make. When you get the cravings for a cake, mug cakes are the best options. Using easily-available ingredients, a delicious mug cake can be made.
